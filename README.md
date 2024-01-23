@@ -28,7 +28,7 @@ We all need to come together, the voices of nature, feminists and every person w
 
 
 
-Literature
+*Literature*
 
 ADOLFF F , BUSSE T (2021): Welche Rechte braucht die Natur? Wege aus dem Artensterben. Frankfurt am Main: Campus Verlag GmbH.
 
