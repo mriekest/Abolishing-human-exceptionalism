@@ -3,7 +3,7 @@
 The discussion around the amount of room we give to nature in our choices, in politics but also in private, is not a new one, but the topic of climate change gave it a new level of importance. Everybody now seems to have an opinion, some more informed than others. I want to add to this discussion and take a look at the topic from a philosophical view in order to make a suggestion for a direction which especially environmental planners and conservationists should explore.
 
 I - INTERCONNECTEDNESS
-< That we are somewhat depending on nature in order to survive seems to be general knowledge in todays society, but humans are still biting the hand that feeds them. Furthermore this argument is only giving the right of protection to the parts of nature, that are of service to humans, it is an argument oozing of a naturalistic and anthropocentric world-view. 
+  That we are somewhat depending on nature in order to survive seems to be general knowledge in todays society, but humans are still biting the hand that feeds them. Furthermore this argument is only giving the right of protection to the parts of nature, that are of service to humans, it is an argument oozing of a naturalistic and anthropocentric world-view. 
 I want to challenge this essentialist approach and ask, are we humans really that disconnected from what we separate so strongly from ourselves, as something only surrounding us? And I am not the first to do so. ‚New ecologist‘ writer Donna Haraway „proclaims that the Athropocene marks a new era, in which humans ‚internalize‘ (rather than externalize) nature“ (JON 2020: 393). Haraway discusses the human exceptionalism with the history of so called species co-evolution and makes the conclusion, that the development of all living things is interconnected (HARAWAY 2003: 26-32). In looking at this intertwined concept of evolution and life, the extraction of humans - as something different, something better - becomes erroneous. The concept of human exceptionalism needs to be dismantled as what it is: a social construct that does nothing but legitimize the pain and destruction our ‚species‘ brings onto this world. 
 The concept of ‚species‘ is a widely discussed one in the field of animal liberation. Especially the notion of speciesism, which arose 1971 (PELLUCHON 2017: p. 25), is for many a fitting approach to describe the suppression we, as humans, bring onto all other living beings on this planet. Speciesism is a concept that conceptualizes the lack of intrinsic value we attribute to animals. Anti-speciesism, demands that the interests of all ‚species' should be taken into account, while noting that not every ‚species‘ has the same interests. (PELLUCHON 2017: p. 25) Anti-speciesism argues with more moral passion than Haraways logical derivation, but in the end both approaches seek to achieve what is so clearly right: the end of slaughter, abuse and devastation.
 Having the theoretical background, an opinion about what is wrong and what is right is only the first step, in the fight for freedom, we should not take too much comfort in this. In order to fight and achieve a ground of morality, we need tangible agendas, a clear idea of what it exactly is that we demand.
@@ -19,28 +19,6 @@ III - CHANGE
 The services that our environment has to offer to humans are defined as ecosystem services. When discussing the importance of nature, ecosystem services are the most commonly used device (ZIMMER, HELFER 2016: p. 297). While I acknowledge the usefulness of the concept in our current society I want to harshly criticize it, and particularly the frequency in which it is used. The first, most obvious problem with the concept is the exclusion of the parts that are of no direct use to humans, or even detrimental. If one only argues with ecosystem services, it inferentially means that there is no argument of protection for the parts that are of no service. But in practice one can see, the idea of ecosystem services is elaborate and covers more parts of our environment than it may seem when one first hears of it. But still, the underlying concept of human exceptionalism, which I already proved to be erroneous, needs to be revealed and discussed more, as by now it is still an essentialism in our field. 
 The second problem I see, which is highly intertwined with the first, is the reproduction of the current value system. The approach seems to work in some aspects really great at the moment, but that is because the human exceptionalism is so fixed in peoples minds. But by frequently using arguments that build so strongly on it, we are reproducing this world view even more. Considering that our field is the most official ‚voice of nature‘, we also hold the most power to kick off change. But by staying in the lane of anthropocentric arguments we are doing the opposite. Only using anthropocentric arguments means we are not acting in favor of those we claim to represent. We just argue with their needs as a disguise, in order to reach our own needs. I want to plead strongly for more radicality in the approaches we use and the outcomes we want to achieve, let us be less afraid to challenge the current world view in order to nudge the change!
 We all need to come together, the voices of nature, feminists and every person who wants to fight for justice in this world. There are solutions and there are ways to achieve them, together we are strong and able to achieve a milestone in history which is long overdue! Let us rise and fight for the rights of those, who can’t do it themselves!
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 
 
 
