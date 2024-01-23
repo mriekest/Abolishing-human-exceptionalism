@@ -1,1 +1,1 @@
-# Abolishing-human-exceptionalism
+# abolishing-human-exceptionalism
