@@ -30,10 +30,17 @@ We all need to come together, the voices of nature, feminists and every person w
 
 ##### Literature
 ADOLFF F , BUSSE T (2021): Welche Rechte braucht die Natur? Wege aus dem Artensterben. Frankfurt am Main: Campus Verlag GmbH.
+
 BONNARDEL Y (1994): Appropriation and the concept of Nature. In Les Cahiers antispécistes, Vol. 11. 
+
 HARAWAY D (2003): The companion species manifesto: Dogs, people and significant otherness. Chicago, IL: Prickly Paradigm Press.
+
 HUTCHINSON A (2014): The Whanganui River as a legal person. In: Alternative Law Journal, Vol. 39:3
+
 JON I (2020): Deciphering posthumanism: Why and how it matters to urban planning in the Anthropocene. In Planning Theory, Vol. 19(4)
+
 MAURIZI M (2016): Jenseits der Natur, Kritische Theorie, Marxismus und das Mensch-Tier Verhältnis. Raleigh NC: Lulu.
+
 PELLUCHON C (2017): Manifeste animaliste. Paris: Alma Editeur.
+
 ZIMMER M, HELFER V (2016): Biodiversität, Ökosystemprozesse und Ökosystemleistungen. In: LOZAN J L, BRECKLE S W, MÜLLER R, RACHOR E: Warnsignal Klima: Die Biodiversität. pp. 297-302.
