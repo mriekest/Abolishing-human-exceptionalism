@@ -1,4 +1,4 @@
-# Abolishing human exceptionalism
+# *Abolishing human exceptionalism*
 
 The discussion around the amount of room we give to nature in our choices, in politics but also in private, is not a new one, but the topic of climate change gave it a new level of importance. Everybody now seems to have an opinion, some more informed than others. I want to add to this discussion and take a look at the topic from a philosophical view in order to make a suggestion for a direction which especially environmental planners and conservationists should explore.
 
